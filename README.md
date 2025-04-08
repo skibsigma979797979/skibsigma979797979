@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on things
 - 📫 How to reach me email
 - 😄 Pronouns: he him
-- ⚡ Fun fact: big fart
+- ⚡ Fun fact: big fart 👍😋
 
 <!---
 skibsigma979797979/skibsigma979797979 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
